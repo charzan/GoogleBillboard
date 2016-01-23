@@ -1,4 +1,4 @@
-Google Billboard
+             Google Billboard
 ==================
 In July of 2004 a mysterious billboard appeared in Silicon Valley. All it said was  
 
